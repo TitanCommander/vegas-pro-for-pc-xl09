@@ -1,4 +1,4 @@
-# 
+# Vegas Pro for PC | Vegas Pro for Windows best Plugin: 4K-export & noise-reduction offers the most advanced Vegas Pro for PC | Vegas Pro for Windows plugin, with 4K-export and
 
 
 
